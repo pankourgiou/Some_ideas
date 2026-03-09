@@ -2,4 +2,5 @@
 1. Ασθένειες της βάδισης μπορούν να αντιμετωπιστούν με τεχνολογία που αυτή τη στιγμή είναι ακριβή για εμπορική χρήση...
 2. Οι νέοι ακούνε διάφορα, άσχετα και παίζει ασχετοσύνη φούλ...οι καμπάνες όμως θα σημάνουν...ο Ήλιος, η δημοκρατία, η υγεία θα επανέλθουν!ο Άδωνις ασχολείται με τον Chimo Bayo και τα φάρμακα τουρομτουμτουμ...σοβαρή υπόθεση..ο διάλογος είναι αληθινός..https://www.youtube.com/watch?v=CecQEN-ukm0
 3. https://www.msn.com/el-gr/news/other/%CE%BC%CE%AE%CE%BD%CF%85%CE%BC%CE%B1-%CE%B1%CF%80%CE%B5%CE%BB%CF%80%CE%B9%CF%83%CE%AF%CE%B1%CF%82-%CE%B1%CF%80%CF%8C-%CF%84%CE%BF%CE%BD-%CE%B3%CE%B9%CE%BF-%CF%84%CE%BF%CF%85-%CE%BC%CE%AF%CE%BA%CE%B7-%CE%B8%CE%B5%CE%BF%CE%B4%CF%89%CF%81%CE%AC%CE%BA%CE%B7-%CE%B5%CE%AF%CE%BC%CE%B1%CE%B9-%CE%BF%CE%BB%CE%BF%CE%BC%CF%8C%CE%BD%CE%B1%CF%87%CE%BF%CF%82-%CF%83%CE%BA%CE%AD%CF%86%CF%84%CE%BF%CE%BC%CE%B1%CE%B9-%CE%BD%CE%B1-%CE%BA%CE%AC%CE%BD%CF%89-%CE%BA%CE%B1%CE%BA%CF%8C-%CF%83%CF%84%CE%BF%CE%BD-%CE%B5%CE%B1%CF%85%CF%84%CF%8C-%CE%BC%CE%BF%CF%85/ar-AA1XOPMi
-4. We can change like seasons change.    
+4. We can change like seasons change.
+5. Triskaideka....13 δηλαδή...https://www.youtube.com/watch?v=K66dL16MVy0&list=RDK66dL16MVy0&start_radio=1
